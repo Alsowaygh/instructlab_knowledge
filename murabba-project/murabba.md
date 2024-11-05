@@ -1,0 +1,12 @@
+New Murabba (The New Murabba) is a planned mixed-use real estate development in northwestern Riyadh and easternmost Diriyah, Saudi Arabia. It was announced in February 2023 by Saudi crown prince Mohammed bin Salman as the world's largest modern downtown project. Named after Riyadh's al-Murabba neighborhood, it is part of Saudi Vision 2030 and would contain the Mukaab, a 400-meters tall cuboid skyscraper. It will be the world's second climate-controlled indoor city, after the Mohammed Bin Rashid City in Dubai, United Arab Emirates.
+
+The downtown will be situated at an intersection of King Khalid Road and King Salman Road. The downtown will sit on two neighborhoods of Riyadh and three neighborhoods of Diriyah. Its eastern part will be carved out from al-Malqa and partially al-Qirawan districts of Riyadh's al-Shemal sub-municipality whereas its western portion will consist of al-Salmaniyah, al-Malik and partially al-Malqah neighborhoods of the Diriyah Governorate.
+
+Overview:
+The New Murabba project was announced on 16 February 2023 by Crown Prince and Prime Minister of Saudi Arabia, Mohammed bin Salman. The downtown, situated at an intersection between King Khalid Road and King Salman Road, will be completed by 2030. Mohammed bin Salman simultaneously unveiled the Mukaab and announced the establishment of the New Murabba Development Company (NDMC), a firm owned by the Public Investment Fund.
+
+It is named after the Riyadh's al-Murabba neighborhood whereas its flagship architectural project, the Mukaab, is modeled after the cuboidal layout of the Murabba Palace.
+
+According to the Saudi Press Agency, the downtown will be built around the concept of sustainability, featuring green areas and walking and cycling paths that will enhance the quality of life by promoting healthy, active lifestyles and community activities like eco-friendly zones and walking and cycling paths.[8] The project will also include an iconic museum, a technology and design university, a multipurpose immersive theater, and more than 80 entertainment and cultural venues.
+
+The project is projected to boost Saudi Arabia's economy in the non-oil sector and is expected to add 180 billion Saudi riyals ($48.00 billion) to non-oil GDP and create 334,000 direct and indirect jobs by 2030, a year that coincides with the estimated culmination of Saudi Vision 2030.
