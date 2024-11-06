@@ -5,7 +5,7 @@ The downtown will be situated at an intersection of King Khalid Road and King Sa
 Overview:
 The New Murabba project was announced on 16 February 2023 by Crown Prince and Prime Minister of Saudi Arabia, Mohammed bin Salman. The downtown, situated at an intersection between King Khalid Road and King Salman Road, will be completed by 2030. Mohammed bin Salman simultaneously unveiled the Mukaab and announced the establishment of the New Murabba Development Company (NDMC), a firm owned by the Public Investment Fund.
 
-It is named after the Riyadh's al-Murabba neighborhood whereas its flagship architectural project, the Mukaab, is modeled after the cuboidal layout of the Murabba Palace.
+It is named after the Riyadh's al-Murabba neighborhood whereas its flagship architectural project, the Mukaab, is modeled after the cuboidal layout of the Murabba Palace. The Mukaab is a proposed architectural project to build a 400-meter (1,300 ft) tall cube-shaped skyscraper in the al-Qirawan district of Riyadh, Saudi Arabia, one of the five neighborhoods of the planned real estate development of New Murabba. Launched in February 2023, its cuboidal layout and design are inspired by the Murabba Palace.
 
 According to the Saudi Press Agency, the downtown will be built around the concept of sustainability, featuring green areas and walking and cycling paths that will enhance the quality of life by promoting healthy, active lifestyles and community activities like eco-friendly zones and walking and cycling paths.[8] The project will also include an iconic museum, a technology and design university, a multipurpose immersive theater, and more than 80 entertainment and cultural venues.
 
